@@ -1,0 +1,27 @@
+# Anwar Ka Ajab Kissa: A Comedy Drama Starring Nawazuddin Siddiqui and Pankaj Tripathi
+ 
+If you are looking for a movie that will make you laugh and cry at the same time, then you should watch **Anwar Ka Ajab Kissa**, a comedy drama starring Nawazuddin Siddiqui and Pankaj Tripathi. This movie is available for online streaming on Eros Now and JioCinema platforms.
+ 
+**Anwar Ka Ajab Kissa** is a story of Anwar (Nawazuddin Siddiqui), a clumsy private detective who often gets stuck in hilariously troublesome situations because of his habit of getting involved in the personal lives of his cases. While his life is about following people, he is still in search of himself, and he finally gets a chance to face a tragedy in his past when he lands a case to find Amol (Pankaj Tripathi).
+ 
+**Download File ===== [https://urluss.com/2uxpnc](https://urluss.com/2uxpnc)**
+
+
+ 
+The movie is directed by Buddhadev Dasgupta, a renowned filmmaker who has won several national and international awards for his films. The movie also features Niharika Singh, Ananya Chatterjee, Makrand Brahme and Sohini Paul in supporting roles.
+ 
+Anwar Ka Ajab Kissa full movie online,  Watch Anwar Ka Ajab Kissa on Eros Now,  Nawazuddin Siddiqui in Anwar Ka Ajab Kissa,  Anwar Ka Ajab Kissa movie review,  Anwar Ka Ajab Kissa dark comedy film,  Anwar Ka Ajab Kissa 2013 Hindi movie,  Anwar Ka Ajab Kissa directed by Buddhadev Dasgupta,  Anwar Ka Ajab Kissa cast and crew,  Anwar Ka Ajab Kissa official trailer,  Anwar Ka Ajab Kissa movie scenes,  Anwar Ka Ajab Kissa Nawazuddin's first love,  Anwar Ka Ajab Kissa Pankaj Tripathi's role,  Anwar Ka Ajab Kissa Niharika Singh's character,  Anwar Ka Ajab Kissa detective story,  Anwar Ka Ajab Kissa release date,  Anwar Ka Ajab Kissa premiere at BFI London Film Festival,  Anwar Ka Ajab Kissa Sniffer English title,  Anwar Ka Ajab Kissa soundtrack by Alokananda Dasgupta,  Anwar Ka Ajab Kissa cinematography by Diego Romero,  Anwar Ka Ajab Kissa shooting locations,  Anwar Ka Ajab Kissa box office collection,  Anwar Ka Ajab Kissa awards and nominations,  Anwar Ka Ajab Kissa critics' ratings,  Anwar Ka Ajab Kissa audience's reactions,  Anwar Ka Ajab Kissa best dialogues,  Anwar Ka Ajab Kissa behind the scenes,  Anwar Ka Ajab Kissa movie posters,  Anwar Ka Ajab Kissa movie quotes,  Anwar Ka Ajab Kissa movie trivia,  Anwar Ka Ajab Kissa movie memes,  How to watch Anwar Ka Ajab Kissa online for free,  Where to download Anwar Ka Ajab Kissa HD quality,  Is Anwar Ka Ajab Kissa available on Netflix or Amazon Prime Video?,  How to stream Anwar Ka Ajab Kissa on Jio Cinema or Hotstar?,  What is the meaning of Anwar Ka Ajab Kissa?,  What is the theme of Anwar Ka Ajab Kissa?,  What is the genre of Anwar Ka Ajab Kissa?,  Who are the producers of Anwar Ka Ajab Kissa?,  Who are the co-stars of Nawazuddin Siddiqui in Anwar Ka Ajab Kissa?,  Who are the supporting actors in Anwar Ka Ajab Kissa?,  What is the plot of Anwar Ka Ajab Kissa?,  What is the climax of Anwar Ka Ajab Kissa?,  What is the message of Anwar Ka Ajab Kissa?,  What are the similarities and differences between Anwar Ka Ajab Kissa and other detective movies?,  What are the strengths and weaknesses of Anwar Ka Ajab Kissa?,  What are the memorable scenes of Anwar Ka Ajab Kissa?,  What are the funny moments of Anwar Ka Ajab Kissa?,  What are the emotional moments of Anwar Ka Ajab Kissa?,  How does Nawazuddin Siddiqui portray his character in Anwar Ka Ajab Kissa?
+ 
+**Anwar Ka Ajab Kissa** is a movie that will touch your heart with its humor and emotion. It is a movie that will make you appreciate the simple joys of life and the power of love. It is a movie that you should not miss.
+ 
+To watch **Anwar Ka Ajab Kissa** online in HD quality, you can visit Eros Now or JioCinema websites and search for the movie title. You can also download the movie on your device for offline viewing. You will need a subscription to access the movie on these platforms.
+ 
+So what are you waiting for? Watch **Anwar Ka Ajab Kissa** today and enjoy a delightful cinematic experience.
+  
+**Anwar Ka Ajab Kissa** has received mixed reviews from critics and audiences. Some have praised the movie for its quirky characters, poetic visuals, and heartfelt emotions. Others have criticized the movie for its slow pace, uneven narrative, and lack of clarity.
+ 
+One of the highlights of the movie is the chemistry between Nawazuddin Siddiqui and Pankaj Tripathi, who share a brief but memorable scene together. The two actors are known for their versatility and talent, and they deliver a captivating performance in this movie. Nawazuddin Siddiqui is brilliant as Anwar, a man who is torn between his past and present, his dreams and reality, his love and loneliness. He portrays Anwar's vulnerability, humour, and courage with finesse. Pankaj Tripathi is equally impressive as Amol, a man who has left behind his family and village for a new life in the city. He conveys Amol's guilt, regret, and hope with subtlety.
+ 
+**Anwar Ka Ajab Kissa** is not a massy film. Though it has some humour, it is too subtle for the general audience. At a run-time of two hours, some might find it a bit too long. However, if you are looking for a movie that will make you think and feel, then you might enjoy this movie. It is a movie that explores the themes of identity, loss, love, and longing in a unique way. It is a movie that showcases the artistry of Buddhadeb Dasgupta and the brilliance of Nawazuddin Siddiqui.
+ 8cf37b1e13
+ 
